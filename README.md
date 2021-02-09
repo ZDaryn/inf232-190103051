@@ -1,0 +1,1 @@
+I am Zhylkyshy Daryn. 20 years old :). Graduated from NIS Taraz. Now studing at SDU.
